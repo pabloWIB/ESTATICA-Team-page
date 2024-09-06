@@ -1,1 +1,1 @@
-[![764shots-so.png](https://i.postimg.cc/ydVycTC7/764shots-so.png)](https://postimg.cc/t1M6HWgc)
+![image](https://github.com/user-attachments/assets/395d87a8-6ecd-4828-84f1-09c2ebfe914e)
